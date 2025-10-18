@@ -1,3 +1,3 @@
-t practice is best practice ever
+editing practice is best practice ever
 this is for students
 
